@@ -5,4 +5,4 @@ I've added them to GitHub so I have acces to them in case some weird stuff happe
 I will also be going by them one by one and do them again (I've forgot some stuff sadly)
 
 
-don't enjoy and I hope i dont get copyright strikes from the school
+don't enjoy (🤡) and I hope i dont get copyright strikes from the school 💀💀💀💀
